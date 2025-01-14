@@ -3,17 +3,17 @@
 A short description / abstract of the topic you choose. For the text here and below, feel free to use **bold** and *italic* fonts, [linked texts](url),  ![images](url), or any other element you think would be helpful for your audience to understand the topic.
 
 
-## Section 1
+##Introduction
 One or several paragraphs.
 
-## Section 2
+##About Me
 One or several paragraphs.
-### (Optional) Subsection 1
+###School
 One or several paragraphs.
-### (Optional) Subsection 2
+###Work
 One or several paragraphs.
 
-## Section 3
+## Family
 One or several paragraphs for subsection 3.
 
 ## See also
