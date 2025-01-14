@@ -1,6 +1,6 @@
 ![University of Washington Basketball](https://gohuskies.com/images/2024/7/22/240203_MBBvsWSU_23.jpg)
 
-In the world of college athletics, the **University of Washington** as of late has been most recognizable for their football program after reaching the college football playoffs in 2016 and 2024. However, deeply rooted in Seattle is the basketball culture that was once set by legends whose jerseys hang in the rafters of *Alaska Airlines Arena*. Legends such as **Isaiah Thomas**, **Brandon Roy**, and soon to be retired **Kelsey Plum**.
+In the world of college athletics, the **University of Washington** as of late has been most recognizable for their football program after reaching the College Football Playoffs in 2016 and 2024. However, deeply rooted in Seattle is the basketball culture that was once set by legends whose jerseys hang in the rafters of *Alaska Airlines Arena*. Players such as **Isaiah Thomas**, **Brandon Roy**, and soon to be retired **Kelsey Plum** have retired numbers at the University of Washington for their accomplishments, accolades, and impact they had on the University and the city of Seattle.
 
 ## Isaiah Thomas #2
 ### Retired on February 17, 2019
