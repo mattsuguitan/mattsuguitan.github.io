@@ -6,7 +6,7 @@ In the world of college athletics, the **University of Washington** as of late h
 ### Retired on February 17, 2019
 - Pac-10 Freshman of the Year (2009)
 - 3x All Pac-10 (2009-2011)
-- Pac-10 Tournament Champion and MVP (2010,2011)
+- 2x Pac-10 Tournament Champion and MVP (2010,2011)
 
 ## Brandon Roy #3
 ### Retired on January 22, 2009
